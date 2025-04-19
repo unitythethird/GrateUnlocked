@@ -1,0 +1,1 @@
+grate unlocked (grate is a fork from a legal mod menu but works in new update but now works in pub server and yes its und in pub servers unlike what grate says) all the prot on it was an if statement 💔 p.s pls put better prot on the menu
